@@ -1,30 +1,28 @@
 ---
-title: "The Black Hand"
+title: "Dishonored Motorcycle Club"
 aside: true
 bottom: true
 toc: true
 navigation: true
 ---
 
-# The Black Hand
+# Dishonored Motorcycle Club
 
-![The Black Hand](https://cdn.discordapp.com/attachments/949343202706595840/1156142156810047559/scImtnn.png)
+![Dishonored Motorcycle Club](https://media.discordapp.net/attachments/1266670962477371473/1270024298051928074/image.png?ex=66c6a10c&is=66c54f8c&hm=9d53ce146cf75a539e0aebe6f2c1503612e16f4e56430b41a1a79962cfbbe421&=&format=webp&quality=lossless&width=810&height=383)
 
 
-## The Bullet that Changed the World
+## A new beginning
 
-[The Black Hand Lore](https://www.youtube.com/watch?v=5_nwye1546Q)
+[Dishonored Motorcycle Club Lore]
 
-**The Black Hand**, always lurking in the shadows, a powerful secret society who changed the world and what we knew it as, under the oppression of the Austro-Hungarian rule, one bullet changed the fate of the entire world and from one bullet, the world was at war, economies crumbled, men, women, and children died, infrastructure was destroyed, and peace was no more, that is the power **The Black Hand** wielded, and that power was used for nothing more than the betterment of their people. People who were mistreated, people who were oppressed, people who were starved, beaten and seen as lower class, now after generations finally tasted their own freedom.
+**Dishonered MC**, the story of disgraced soldiers only seeking freedom and triumph, though they are freshly established, their history stems long and wide. Originating as the terrorist group from the Bosnian sector of former Yugoslavia, The Black Hand over 100 years ago, they were notoriously known as the organization that kicked off the start of World War 1. People thought they had been condemned and disbanded from that point, however The Black Hand had always remained in the shadows. 
 
-That man was Josip Broz Tito, the hero of Yugoslavia, the savior and our leader, but upon his death all that he built, the unity, turned to division, the infrastructure turned to rubble, peace, to yet another war, 'I will spill an ocean of blood for my people' and in return for his sacrifices, his people spilt their own blood, for their greed, such a large scale war is something **The Black Hand** could not prevent, and thus we went back to the shadows, hopeful that a new society was worthy of our presence.
+Through over a century they involved themselves in many key points in history, through different aliases and disguises, they were experts in espionage, assassinations, warfare and cyber warfare. They caused many governments to crumble and many countries to burn, but always remained in the shadows. 
 
-Vin and Sam wanted to regain the honor of **The Black Hand**, and thus they traveled across the world, to countries whose views did not align with **The Black Hand**, specialist in assassination's and cyber warfare, they took the lives of leaders, and propped up new ones, Afghanistan, 1995, a country with plenty of life, enough money, and a rich and endearing culture, Afghanistan, 2010, an economy struggling to survive, their people murdered by their own, greed is overflowing, extremism is on the rise, and death is a guarantee. 'I want you to feel the pain of my people' their goals seemed to have been altered, do they wish to regain honor, or just to wreak havoc, after all, a pain that we all feel unifies us, and once we have felt that pain, then there might be peace in the end. Thus the process of de-stability was rinsed and repeated across many countries, Uganda, Kenya, Iraq, Iran, wherever there was life and prosperity, you could exploit greed, let the world burn in order to rebuild it, that was **The Black Hands** way.
+After many years of seclusion and operations that no one knew the truth about, after taking control of the helm of the organization, Vin and Sam wanted recognition for their cause and their army. They took aim of the crime riddled city of Los Santos where they aimed to take control of the corrupt government and run over the rampant gang scene. Through this process, they went through many trials and tribulations. With the dictating head of the federal police Sanderson trying to stop them at any cause and every gang aiming their sights at them, they constantly found themselves directly in war with anyone and everyone that decided to step to them or step foot in Paleto, which they now recognized as their home. 
 
-After many years, Vin and Sam stumbled upon Los Santos, a city with unimaginable rates of crime and violence, people would get murdered, robbed and kidnapped on a daily basis, yet the economy thrived, their normal way of things would not work, so they sought power in numbers, 6 members running around trying to figure out how things worked, after 12 long hard months, turned to 16 members, the numbers were there, the power, discipline, and loyalty were not, so they burned it to the ground, time and time again until they achieved that desired power, and today we stand, as one of the most formidable forces that Los Santos has seen, the rulers of the North, the Dictator of Paleto Bay, we are only rivaled in strength by a few, we once again stand proudly as the embodiment of violence, those who live under our rule, live peacefully, those who disobey it, do not live to tell the tale of their disobedience.
+Through the journey, they lost and found many soldiers, their most loyal men Mason, Swish, Pine and Lemon stayed loyal above all else and helped them achieve true greatness. Eventually Vin retired and Sam took over, in which more men stepped up and showed leadership within the organization, being Cruzy and Jimmy. The gang continued to enjoy great success and really proclaimed themselves as the top of the food chain for a good period of time, wiping out anyone that tried to lay claim to their throne, however all great things must come to an end eventually...
 
-Our goal is simple, Unity under one rule, our return to our former glory comes with consequence, we hold the power to imbalance the world, enough violence to burn it to ashes, and enough persistence to rebuild it, Death does not discriminate based on age, gender, religion nor association, to us you are just another name on our list, an obstacle towards our goal of a greater society, as such do not fear death, because death is inevitable.
+Sam decided to retire and now with both Vin and him gone, the great Bosnian lineage within The Black Hand had faded. With respect to those that came before them, Mason and Swish carried out their legacy, and kept The Black Hand going. However, as time passed, the tyranny and ideals of The Black Hand had faded, Mason and Swish were both 1%ers to the bone. They preferred a notorious life of freedom, a life with no rules, no code. Along with what was left of The Black Hand and those that shared their dreams, they laid down their vests and embarked on a new journey. Though they never let go of their connections and trades within the Los Santos black market and underground, they now did things how they wanted, as the Dishonered MC they no longer wanted to take over the world, rather enjoy the freedom of it.
 
-**We are The Black Hand** 
-
-*Unifikacija ili Smrt*
+*Live by the sword, die by the sword.*
